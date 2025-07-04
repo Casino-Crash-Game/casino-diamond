@@ -55,7 +55,7 @@ We invite you to be part of my journey into the exciting world of online gaming!
 
 - ☎️ **Telegram**: 
 ~~~
-@cashblaze127
+@cashblaze129
 ~~~
 
 We hope you enjoy exploring and playing Casino Diamond! Your feedback and support mean the world to us. Happy gaming! 🎉
